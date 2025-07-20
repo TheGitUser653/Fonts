@@ -1,2 +1,2 @@
-Free personal (or free commercial) fonts.
+Free personal use (or free commercial use) fonts.
 Use them as you want.
